@@ -1,2 +1,2 @@
-# Bienvenido a la pagina de Luis Nieto Gonzáñez
+# Bienvenido a la pagina de Luis Nieto González
 
